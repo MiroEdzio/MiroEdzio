@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @MiroEdzio
+- 🌱 I’m currently learnig
